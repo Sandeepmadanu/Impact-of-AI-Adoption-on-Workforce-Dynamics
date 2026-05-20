@@ -1,4 +1,4 @@
-# 🚀 Exploring the Impact of AI Adoption on Workforce Dynamics Analysis
+# 🚀 Exploring the Impact of AI Adoption on Workforce Dynamics
 
 ## 📌 Objective
 
